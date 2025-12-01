@@ -6,7 +6,7 @@
 
 - 📫 How to reach me: **arb28@sfu.ca**
 
-- ⚡ **I like running, buldering, and !**
+- ⚡ **I like running, buldering, and investing!**
 
 </p>
 
